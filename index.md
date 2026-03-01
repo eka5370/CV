@@ -8,7 +8,9 @@ ericantonian143@gmail.com • (973-396-7941) • https://www.linkedin.com/in/eri
 
 •	Performing research within the Bisanz lab pertaining to PFAS and the gut microbiome
 
-**BS BIOLOGY AND BS CHEMISTRY WITH BIOMOLECULAR SPECIALIZATION• AUG 2021 -- MAY 2025 • EMORY UNIVERSITY**
+**BS BIOLOGY AND BS CHEMISTRY • AUG 2021 -- MAY 2025 • EMORY UNIVERSITY**
+
+•	Graduated with a biomolecular specialization
 
 ## WORK EXPERIENCE
 **UNDERGRADUATE RESEARCHER• EMORY UNIVERSITY • JAN 2024 – MAY 2025**
