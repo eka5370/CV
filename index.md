@@ -1,5 +1,5 @@
 # Eric Antonian
-eka5370@pus.edu • (973-396-7941) • https://www.linkedin.com/in/eric-antonian-342897245/ • https://github.com/eka5370
+eka5370@psu.edu • (973-396-7941) • https://www.linkedin.com/in/eric-antonian-342897245/ • https://github.com/eka5370
 
 ![headshot](image.png)
 
